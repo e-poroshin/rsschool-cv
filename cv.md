@@ -5,7 +5,6 @@
 **Phone:** +375292846885 <br />
 **E-mail:** poroshin.eugene@gmail.com <br />
 <br />
-<br />
 
 ###         Objective
 Applying for the position of Junior Android developer.
