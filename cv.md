@@ -3,7 +3,7 @@
 [**LinkedIn**](https://linkedin.com/in/eugene-poroshin) <br />
 **Skype:** zhenkanet <br />
 **Phone:** +375292846885 <br />
-**E-mail:** poroshin.eugene@gmail.com <br />
+**E-mail:** [poroshin.eugene@gmail.com](mailto:poroshin.eugene@gmail.com) <br />
 <br />
 
 ###         Objective
